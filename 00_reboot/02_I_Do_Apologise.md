@@ -30,7 +30,7 @@ A clever poet's trap?
   
 Early hours  
 Later that day,  
-Sleeping,  
+Deep sleep,  
 Woke up,  
 Wide awake,  
 Scribbled madly,  
