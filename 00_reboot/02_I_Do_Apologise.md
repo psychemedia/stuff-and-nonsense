@@ -69,8 +69,8 @@ But they also go _down",
 Was as far as I could get.  
   
 "You can never be  
-<-On  
-The ->other side,  
+^On  
+The _other side,  
 Of the road"  
 Was even worser yet.  
   
