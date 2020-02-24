@@ -37,7 +37,7 @@ Scribbled madly,
 Blunted pencil:  
 A single, direct take.
  
-Mind was crazy racing.  
+My mind was crazy racing.  
 Early hours of the morn,  
 Mind was in a frenzy,  
 Words just tumbled until dawn.  
