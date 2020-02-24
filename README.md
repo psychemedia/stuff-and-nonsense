@@ -18,5 +18,5 @@ And so here's yet another repo,
 But for verse  
 And not for code.  
   
-Hear's yet another repo,  
+Here's yet another repo,  
 For silly nonsense words.  
