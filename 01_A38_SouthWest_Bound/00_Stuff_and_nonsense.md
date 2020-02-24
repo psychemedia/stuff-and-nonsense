@@ -20,7 +20,13 @@ Though I try to make it scan,
 I don't have a quality filter,  
 Just do the best I can.  
 
-I don't have a quality filter,  
+As for an iambic pentameter,
+That doesn't even rhyme,
+"What's that, when it's at home?",
+I say.
+Without it, I'm just fine.
+
+So I don't have a quality filter,  
 Whenever writing stuff,  
 I don't have a quality filter,  
 Which is why I churn so much. 
