@@ -8,7 +8,8 @@ Putting words into their lines.
 I don't have a quality filter,  
 When writing nonsense verse,  
 I don't have a quality filter,  
-Could be better, could be worse.  
+Could be better, 
+Could be worse.  
   
 I don't have a quality filter,  
 Though I try and make stuff rhyme,  
