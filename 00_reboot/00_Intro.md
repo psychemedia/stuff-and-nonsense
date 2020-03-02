@@ -25,7 +25,7 @@ Via proper typeset page.
 I never have to worry,  
 If the words are good enough,  
   
-Because they *are*,  
+Because I know they are,  
   
 Already:  
   
