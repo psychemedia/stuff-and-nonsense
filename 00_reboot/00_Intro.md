@@ -32,6 +32,6 @@ Already:
 They're others peoples' stuff.  
 
 So I'm a covers poet really,  
-Rarely use words of my own,  
-I'm a covers poet really,  
-Telling poems out on loan.  
+Taking poems out on loan,
+Giving them a voice again,
+And finding them new homes.
