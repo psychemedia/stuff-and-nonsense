@@ -25,9 +25,7 @@ Via proper typeset page.
 I never have to worry,  
 If the words are good enough,  
   
-Because I know they are,  
-  
-Already:  
+I know they are,  already:  
   
 They're others peoples' stuff.  
 
