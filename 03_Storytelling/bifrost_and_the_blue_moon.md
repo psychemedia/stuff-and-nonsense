@@ -14,4 +14,10 @@ But if you dally too long, you will be stuck between the Earth and the heavenly 
 
 So if tonight, you see a moonbow, and are tempted, or lucky enough, to find its end, and you are tempted, or lucky enough, to take a quick trip across Bifröst from Midgard, here on earth, to Asgard, the land of the Gods, remember to make it back before the moonbow lifts and returns to the sky in the form of the Milky Way.
 
-But on the other hand, it may be safer if you just stick to the path, and follow the lead and wise words of your guide.
+But on the other hand, it may be safer if you just stick to the path, and follow the lead and wise words of your guide.  
+
+
+
+
+#### Variant
+Use a mooonbow on the shortest day and and a rainbow on the longest day, or *vice versa*, for the way out and the way in.
