@@ -39,7 +39,7 @@ At the Winchester Assizes starting on Wednesday, March 2nd, Michael stood trial.
   
 There were no football matches on Saturdays in those days, but there were public hangings. A good a spectacle as any you could expect.  
   
-And so it was that Michael was executed on Saturday, 19 March, 1737, at Gallows Hill, Winchester.  
+And so it was that Michael was executed on Saturday, 19 March, 1737, at Gallows Hill, Winchester. Hung by the neck until he was dead.  
   
 But the story doesn't end there. Only part of the sentence had been fulfilled.  
   
