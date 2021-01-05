@@ -25,11 +25,13 @@ Walking through nearby autumnal woods that October, another Arreton parishioner 
   
 A jury of witnesses, including the Coroner and the Bailiff, made their way back to the woods. Two half buried satchels were revealed, and opened. An arm here, a leg there were found in one; a bill hook for chopping wood, and, was that a head?, in the other.  
   
-The body was unrecognisable, but a memory at least of the clothes that still wrapped the putrefying body parts was made.  
+The body was unrecognisable, but a description at least of the clothes that still wrapped the putrefying body parts was made.  
   
 A gravedigger was summoned — I don't know if he'd ever seen worse — a coffin made and the body quickly interred in the nearby Arreton church graveyard.  
   
-Unfamiliar, it seems, with crime scene investigation, due process must not have been followed. A positive identification of the body had not been made. And so it was that the next day, James' body was dug up a for a second time. The widowed mother of a neighbouring farmer, who had perhaps made the motherless James Dove's clothes, was called as witness.  From his Hat, Breeches, Stockings, and Shoes, he was duly identified. He was reburied for a second, or should that be, a third?, time.  
+The widowed mother of a neighbouring farmer, who had perhaps at times fashioned clothes for her neighbour's motherless child, had the clothes described to her, but she couldn't be certain they were James'.  
+  
+And so it was that the next day, James' body was dug up a for a second time. From his Hat, Breeches, Stockings, and Shoes, he was duly identified. He was reburied for a second, or should that be, a third?, time.  
   
 The fate of Michael, still in Winchester gaol, was now surely settled; but it was not until February of the next year, 1737, that the great and the good of Arreton Parish met in the vestry of the church there, and grimly determined to pay for Michael's trial on a count of murder.  
   
