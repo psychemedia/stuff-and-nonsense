@@ -21,9 +21,9 @@ Towards the end of July, Michael absconded again. Three days later, he was found
   
 But there was still no sign of James.  
   
-Walking through nearby autumnal woods that October, another Arreton parishioner noticed... what? That's odd. Could there be hidden valuables in that old leather bag that seems half buried over there? Whatever he saw horrified him, and he made haste to summon help.  
+Walking through nearby autumnal woods that October, another Arreton parishioner noticed... what? That's odd. Could there be hidden valuables in that old leather bag that seems half buried over there?  Whoo, hoo, this could be my lucky day... But whatever he saw horrified him, and he made haste to summon help.  
   
-A jury of witnesses, including the Coroner and the Bailiff, made their way back to the woods. Two half buried satchels were revealed, and opened. An arm here, a leg there were found in one; a bill hook for chopping wood, and, was that a head?, in the other.  
+A jury of witnesses, including the Coroner and the Bailiff, made their way back to the woods. Two half buried satchels were revealed, and opened. An arm here, a leg there, a bill hook for chopping wood, and, was that a head? 
   
 The body was unrecognisable, but a description at least of the clothes that still wrapped the putrefying body parts was made.  
   
