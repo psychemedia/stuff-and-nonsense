@@ -1,3 +1,9 @@
+*Originally created for Blue Moon Event / Island Storytellers pop-up at the Garlic Farm, Newchurch, Ocotober 2020.*  
+*It sits uneasily with me now, because it is a fanciful re-description of Bifrost not based on original tales.*
+
+
+---
+
 If you have ever looked up to the heavens on a clear night, you will have surely seen the Milky Way. The scientifically minded among you will know the Milky Way as the spiral arm of our very own galaxy; but those with longer memories know it as Bifröst, the bridge that connects Midgard, the Earth, the land of women and men, of girls and boys, with Asgard, the realm of the Old Norse gods, the gods of the Vikings.
 
 Back in the days when the gods still walked the Earth, Bifröst took the form of a rainbow. Some say that gold was left as gifts, or offerings, for the gods at the end of the rainbow bridge; others say that heavy weights of gold were needed to weigh down the ends of the Milky Way, bringing it down from the heavens above to the world below; and that when the rainbow returned to the sky, where the ends had touched the earth, the gold was left behind; and if you were quick, it could still be found, just below the surface, before sinking under its own weight further and further down into the earth, deeper than even the most skilled of miners could go.
