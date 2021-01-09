@@ -16,7 +16,7 @@ If there was a land dispute, an "action of ejectment" could be brought by someon
 
 *I don't know if the particular case involved the livery of seisin, but it makes for a more colourful story if it does!*
 
-And so it was that on November 25th, at 10 am, the case of Curtis versus Wade was called.
+And so it was that on November 25th, at 10 am, the case of Curtis versus Wade, in the matter of an action of ejectment, was called.
 
 "The plaintiff's counsel commenced his address to the jury, but as the defendant was not present and no one appeared for him, the learned Judge directed a verdict for the plaintiff. The defendant's counsel then entered the Court and claimed to have the cause tried, on the ground that it had been disposed of before 10 o'clock."
 
@@ -36,7 +36,7 @@ The Exchequer of Pleas ruled in favour of the defendant, allowing them to have "
 
 "A person hearing that the court would sit at 10 o'clock would naturally understand that to mean 10 o'clock by the time of the place , unless the contrary was expressed . In this case, looking to the difference of time (of which we are bound to take judicial notice), the defendant was in court before 10 o'clock."
 
-If the trial is set in Dorchester, to be on Thursday at 10 in Dorchester, then the case will be heard, on Thursday, at 10, in Dorchester.
+If the trial is set in Dorchester, to be on Thursday at 10 in Dorchester, then the case will be heard, on Thursday, at 10, in Dorchester, using the local time of that place.
 
 
 Such is the way of the law in Britain and Ireland, a *Common Law* approach, where judges rulings in the absence of statute, or interpretation of enacted laws and statutes, are the law, Curtis versus Wade defined "standard time" as used in the courts of Great Britain and Ireland.
