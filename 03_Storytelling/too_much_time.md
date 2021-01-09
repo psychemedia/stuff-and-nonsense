@@ -2,15 +2,17 @@ Back in the day, every place had its own time. Not just its own local village fe
 
 When it was midday in Oxford it was just after five *past* twelve in London (or 5 minutes and two seconds passed twelve to be precise). At the same time, it was five minutes *to* twelve in Bristol.
 
-So when people say "London is ahead of its time", that's true, in a certain sense: it just gets there first. And when people say, "the folk in Bristol are so behind the times", that's true too.
+Time followed the sun.
 
-Every evening at 9 o'clock "Oxford Time" (which is to say five *past* nine in London time), the bell  Christ Church College, Great Tom, rings out a hundred and one times, once for each of the college's original 101 students, calling the colleges to lock their gates. Thereupon, it remains silent until it resumes announcing the London hour, every hour from 8am the the next morning. To this day the people of Oxford know their own time.
+So when people said "London is ahead of the times", that was true, in a certain sense: daylight gets there before many places in the UK. And if people say, "the folk in the West Country are so behind the times", that's could also be true...
+
+Every evening at 9 o'clock "Oxford Time" (which is to say five *past* nine in London time), the bell  at Christ Church College, Great Tom, rings out a hundred and one times, once for each of the college's original 101 students, calling the colleges to lock their gates. Thereupon, it remains silent until it resumes announcing the London hour, every hour from 8am the the next morning. To this day the people of Oxford know their own time.
 
 As they do in Bristol. If you're ever on the Big Island, and happen to visit Bristol, and if you find yourself stood in from of the old Corn Exchange, look up to the clock tower: as well as the rather unusual red painted numbers, you'll notice it has *two* minute hands. The red minute hand shows London time, Greenwich Mean Time; but a *second*, __black__ minute hand shows local Bristol time, 10 minutes behind.
 
-Having your own time could lead to problems. In 1858, at the Dorchester Assizes, a hearing was set for 10 o'clock a.m. The case involved an action of ejectment, which is to say a property case. In those days, ownership of land was transferred by ritual and custom as much as it was by legal document.
+Having your own time could lead to problems. In 1858, at the Dorchester Assizes, a hearing was set for 10 o'clock a.m. The case involved an action of ejectment, which is to say a property case. In those days, ownership of land could be transferred by ritual and custom as much as it was by legal document.
 
-The medieval *livery of seisin* which remained in law until 1925, fewer than a hundred years ago, when my own grandparents were children, required the original landowner and whoever was being given the land, along with any witnesses to gather somewhere on the land; the owner would then pick up a handful of earth and hand it over, literally handing of the ownership of it.
+The medieval *livery of seisin*, which remained as valid in law until 1925, fewer than a hundred years ago, when my own grandparents were children, required the original landowner and whoever was being given the land, along with any witnesses to gather somewhere on the land; the owner would then pick up a handful of earth and hand it over, literally handing of the ownership of it.
 
 If there was a land dispute, an "action of ejectment" could be brought by someone who argued that they had wrongfully been dispossessed of the land or had a better right to it.
 
@@ -52,5 +54,3 @@ Standard time as London time, as Greenwich mean time, GMT, did not enter the sta
   
   
 Reference: [vol. iii. of Hurlstone and Norman's `Exchequer Reports,' p. 866 (1858), https://www.google.co.uk/books/edition/The_Exchequer_Reports/edEsAQAAMAAJ?hl=en&gbpv=1]
-
-
