@@ -31,9 +31,9 @@ A clever poet's trap?
 ^Early hours  
 _Later that day,  
 
-Form a _deep sleep,  
 Woke ^up,  
-_Wide awake,  
+from a _deep sleep,  
+Looked around, now _wide awake,  
 
 Scribbled madly,  
 Blunted pencil:  
