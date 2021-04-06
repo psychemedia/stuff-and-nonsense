@@ -4,7 +4,7 @@ When it was midday in Oxford it was just after five *past* twelve in London (or 
 
 Time followed the sun.
 
-So when people said "London is ahead of the times", that was true, in a certain sense: daylight gets there before many places in the UK. And if people say, "the folk in the West Country are so behind the times", that's could also be true...
+So when people said "London is ahead of the times", that was true, in a certain sense: daylight gets there before many places in the UK. And if people say, "the folk in the West Country are so behind the times", that could also be true...
 
 Every evening at 9 o'clock "Oxford Time" (which is to say five *past* nine in London time), the bell  at Christ Church College, Great Tom, rings out a hundred and one times, once for each of the college's original 101 students, calling the colleges to lock their gates. Thereupon, it remains silent until it resumes announcing the London hour, every hour from 8am the the next morning. To this day the people of Oxford know their own time.
 
