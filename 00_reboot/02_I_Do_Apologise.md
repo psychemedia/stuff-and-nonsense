@@ -28,11 +28,13 @@ An opposite?
 An "apposite"?  
 A clever poet's trap?
   
-Early hours  
-Later that day,  
-_Deep sleep,  
+^Early hours  
+_Later that day,  
+
+Form a _deep sleep,  
 Woke ^up,  
-Wide awake,  
+_Wide awake,  
+
 Scribbled madly,  
 Blunted pencil:  
 A single, direct take.
@@ -42,8 +44,8 @@ Early hours of the morn,
 Mind was in a frenzy,  
 Words just tumbled until dawn.  
    
-So I picked upon the word play,  
-Could I make the numbers work?  
+So I picked upon the word ^play,  
+Could I make the numbers _work?  
 From turns of phrase,  
 To apposites,  
 In mindless rhyming verse?  
