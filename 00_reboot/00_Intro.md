@@ -17,7 +17,7 @@ To have been published,
   
 In a book,  
   
-Or told upon a stage,  
+Or performed upon a stage,  
   
 They've already been approved,  
 Via proper typeset page.
