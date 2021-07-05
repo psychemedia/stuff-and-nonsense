@@ -28,7 +28,17 @@ If the words are good enough,
 I know they are,  already:  
   
 They're others peoples' stuff.  
-
+  
+They may not be originals,  
+They may not be my own,  
+Not written down as manuscript,  
+Or typed into a phone,  
+  
+But committed unto memory,  
+At least as best I can,  
+I hope you'll find these words not mine,
+In keeping with your jam.  
+  
 So I'm a covers poet really,  
 Taking poems out on loan,  
 Giving them a voice again,  
