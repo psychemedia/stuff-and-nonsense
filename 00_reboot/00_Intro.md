@@ -36,7 +36,7 @@ Or typed into a phone,
   
 But committed unto memory,  
 At least as best I can,  
-I hope you'll find these words not mine,
+I hope you'll find these words not mine,  
 In keeping with your jam.  
   
 So I'm a covers poet really,  
