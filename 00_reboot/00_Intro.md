@@ -43,3 +43,31 @@ So I'm a covers poet really,
 Taking poems out on loan,  
 Giving them a voice again,  
 And finding them new homes.
+
+
+## And for a second visit...
+
+You may know me as a covers poet  
+For telling nonsense rhymes,  
+Retrieved from classic literature  
+From written far off times  
+
+For telling made up stories,  
+Reciting ballad tales,  
+Committed unto memory,  
+At least until it fails.  
+
+Before the Marvel universe  
+And DC Comic worlds,  
+The fabled isles of nonsense  
+And journeyed places told  
+
+Of Jabberwocks and Jumblies  
+Of Butchers feeling queer,  
+Of Crumpety Hats and Pobbles' toes,  
+Of Carroll, and of Lear  
+
+So I'm a covers poet really,  
+Turning up here once again,  
+To spout some silly nonsense verse,  
+From someone else's pen.  
