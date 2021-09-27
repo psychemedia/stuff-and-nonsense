@@ -40,8 +40,8 @@ And so it was: having been convicted once already in a legal court, the Papal Co
 
 And here the tale does end. The lighthouse was built, although de Godeton was to die before it was fully completed. As to whether his soul was saved in time, or damned to eternity, who can say?
 
-The lighthouse still stands to this day, at the southernmost point of the Isle of Wight, Britain's only surviving medieval lighthouse, with only the Roman lighthouse at Dover being older. Known officially as St Catherine's Oratory, it's rather unusual octagonal shape gives it its more colloquial, local name: The Pepperpot.
+The lighthouse still stands to this day, on the high down just inland from the southernmost point of the Isle of Wight, Britain's only surviving medieval lighthouse, with only the Roman lighthouse at Dover being older. Known officially as St Catherine's Oratory, it's rather unusual octagonal shape gives it its more colloquial, local name: The Pepperpot.
 
-If you are fortunate enough to ever walk up their, you can down onto the ledge, where on dark and stormy day in 1313, on the Sunday after Easter, the Saint Mary of Bayonne was blown onto the ledge, and her cargo of communion wine washed ashore.
+If you are fortunate enough to ever walk up there, you can look down onto the ledge, where on dark and stormy day in 1313, on the Sunday after Easter, the Saint Mary of Bayonne was blown onto the ledge, and her cargo of communion wine washed ashore.
 
 Cheers...
