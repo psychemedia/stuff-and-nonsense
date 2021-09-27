@@ -18,7 +18,7 @@ Now it was also true that merchant sailors were a resourceful and pragmatic bunc
 
 Who knows whether the sailors were complicit, or profited that day. Nor how many of the 174 barrels of wine on board the St Mary, each containing 250 gallons or so of the finest wine, the finest wine indeed, made it ashore. But many of the barrels did... And so whether a hasty deal was done, right there, right there on the shore, or perhaps more leisurely, in one of island inns when the storm had abated and the salvage accounted for, or whether the sailors had no choice in the matter as the barrels were whisked up the chines, de Godeton had done well for himself: for he had secured near enough fifty of the barrels for himself. 50 barrels. Oh, he'd be able to turn a tidy profit on that, no doubt.
 
-Yes, thought de Godeton. Things are going well.
+Yes, thought de Godeton. Things were going well.
 
 But... there's always a but... The merchant who had chartered the ship was not happy; not happy at all.
 
