@@ -24,7 +24,7 @@ Would not have been arranged.
 So maybe, maybe,  
 Will I?  
 Won't?  
-Go back once again?  
+Go back there once again?  
 
 Get prompted,  
 In another way?  
