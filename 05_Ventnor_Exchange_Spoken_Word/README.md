@@ -50,3 +50,38 @@ Truth be told:
 
 I'd rather tell a story,  
 Or a cover nonsense pome.  
+
+
+## Rejoinder...  
+
+For why? For why?  
+You maybe ask.  
+Creative space is rare.  
+
+But that I find
+Inside my head  
+As into space I stare.  
+
+Performance practice:  
+What I need.  
+I need some more of that.  
+
+More tales told,  
+And practiced,  
+Learned from if they should fall flat.  
+
+More practice, practice, practice,  
+In speaking out aloud.  
+More practice, practice, practice,  
+In hearing how they sound.  
+
+More practice practice practice  
+In openings and ends.  
+In learning about audience,  
+Attending, entertained.  
+
+More practice, practice, practice,  
+Opportunities are rare.  
+
+So maybe having found a space,  
+I should just return there.  
