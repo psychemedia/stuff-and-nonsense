@@ -12,7 +12,7 @@ Of cats and rabbits white.
 
 The name I'm better known by,  
 Graced the covers of my books.  
-The girls who formed the audience,  
+The girls who framed the audience,  
 Of photographs I took.  
 
 An epic nonsense poem of mine,  
