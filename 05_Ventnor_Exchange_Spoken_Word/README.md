@@ -10,7 +10,8 @@ Are really just not me.
 
 "Supportive" and "community",  
 I'm too aloof for that,  
-Classed alongside "self-help" groups,  
+Classed alongside:  
+"Self-help" groups,  
 I'm not comf'tably sat.  
 
 But had I not,  
