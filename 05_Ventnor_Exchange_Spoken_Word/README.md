@@ -69,7 +69,8 @@ I need some more of that.
 
 More tales told,  
 And practiced,  
-Learned from if they should fall flat.  
+Learned from
+If they should fall flat.  
 
 More practice, practice, practice,  
 In speaking out aloud.  
