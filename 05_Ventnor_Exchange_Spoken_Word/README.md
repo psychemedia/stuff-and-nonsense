@@ -49,4 +49,4 @@ Maybe not?
 Truth be told:  
 
 I'd rather tell a story,  
-Or cover nonsense pome.  
+Or a cover nonsense pome.  
