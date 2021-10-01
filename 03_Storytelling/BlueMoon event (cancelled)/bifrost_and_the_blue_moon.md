@@ -26,4 +26,4 @@ But on the other hand, it may be safer if you just stick to the path, and follow
 
 
 #### Variant
-Use a mooonbow on the shortest day and and a rainbow on the longest day, or *vice versa*, for the way out and the way in.
+Use a moonbow on the shortest day and and a rainbow on the longest day, or *vice versa*, for the way out and the way in.
