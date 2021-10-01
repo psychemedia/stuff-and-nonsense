@@ -26,7 +26,7 @@ Will I?
 Won't?  
 Go back there once again?  
 
-Get prompted,  
+Be prompted,  
 In another way?  
 From comfort zone to pain?  
 
