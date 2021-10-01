@@ -46,6 +46,7 @@ Maybe?
 Maybe not?  
 
 'Cos really,  
-Truth be told,  
+Truth be told:  
+
 I'd rather tell a story,  
 Or cover nonsense pome.  
