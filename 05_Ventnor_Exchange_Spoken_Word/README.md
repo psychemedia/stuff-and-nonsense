@@ -5,8 +5,8 @@ What "Spoken Word",
 Is quite supposed to be.  
 
 And workshop games,  
-And exercise,  
-Are really just not me.
+And exercises,  
+Really just not me.
 
 "Supportive" and "community",  
 I'm too aloof for that,  
