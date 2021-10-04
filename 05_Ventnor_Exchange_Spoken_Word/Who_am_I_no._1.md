@@ -8,7 +8,7 @@ Under my own name.
 Made friends with the Dean's family,  
 His daughters my delight,  
 Told them stories, boating wise,  
-Of cats, and rabbits white.  
+Of hats on rabbits white.  
 
 The name I'm better known by,  
 Graced the covers of my books.  
