@@ -101,8 +101,8 @@ Swung on the hill in olden time.
 In glass case 'tis exposed by him  
 And prized as if a precious gem.  
 The house in which the murderer dwelt  
-He set on fire, and when rebuilt
-Twas "Burnt House" call'd – the name to-day, 
+He set on fire, and when rebuilt  
+Twas "Burnt House" call'd – the name to-day,  
 Though six score years have pass'd away.
 
 J. DORE.
