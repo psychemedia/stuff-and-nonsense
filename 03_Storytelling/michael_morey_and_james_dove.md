@@ -61,3 +61,48 @@ And bring to mind the playground rhyme learned by so many of Arreton's primary s
 For cutting off his grandson's head,  
 He is hung on Arreton Down  
 For rooks and ravens to peck down.*  
+
+
+
+See also:
+
+Isle of Wight Observer - Saturday 03 May 1879
+
+A LEGEND OF ARRETON DOWN
+
+[A short time ago some men, digging on the down, found the skull with teeth perfect, amid other bones, supposed to be the remains of Micah Morey, a woodman, who was hunh there- for the murder of his grandson in the year 1735.] 
+
+Old Micah Morey, I've heard say,  
+His grandson's head cut off one day ;  
+For some time after that, 'tis said  
+He wandered in the fields, and fed  
+Ou beans and peas, 'till he was caught,  
+And for his crime to justice brought.  
+He was the murderer proved to be,  
+For which he paid the penalty.  
+Upon a gibbet he was sluug,  
+Where many days the bbody hung,  
+Which surely did the folks affright  
+Who had to pass that way at night.  
+At length some who more daring were  
+Said it no longer should hang there,  
+So cut it down, and hid from view  
+The corpse, where none beside them knew.  
+His ghost, howe'er. I've heard some say,  
+Oit scared them when they pass'd that way.  
+His nones which long were hid from sight,  
+Have lately been exposed to light,  
+From their long resting place exhumed,  
+And rudely elsewhere are entombed.  
+His skull a stranger brought away,  
+Him to remind, at this late day,  
+That Micah Morey for his crime  
+Swung on the hill in olden time.  
+In glass case 'tis exposed by him  
+And prized as if a precious gem.  
+The house in which the murderer dwelt  
+He set on fire, and when rebuilt
+Twas "Burnt House" call'd – the name to-day, 
+Though six score years have pass'd away.
+
+J. DORE.
