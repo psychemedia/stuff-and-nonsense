@@ -76,12 +76,12 @@ Old Micah Morey, I've heard say,
 His grandson's head cut off one day ;  
 For some time after that, 'tis said  
 He wandered in the fields, and fed  
-Ou beans and peas, 'till he was caught,  
+On beans and peas, 'till he was caught,  
 And for his crime to justice brought.  
 He was the murderer proved to be,  
 For which he paid the penalty.  
-Upon a gibbet he was sluug,  
-Where many days the bbody hung,  
+Upon a gibbet he was slung,  
+Where many days the body hung,  
 Which surely did the folks affright  
 Who had to pass that way at night.  
 At length some who more daring were  
@@ -90,7 +90,7 @@ So cut it down, and hid from view
 The corpse, where none beside them knew.  
 His ghost, howe'er. I've heard some say,  
 Oit scared them when they pass'd that way.  
-His nones which long were hid from sight,  
+His bones which long were hid from sight,  
 Have lately been exposed to light,  
 From their long resting place exhumed,  
 And rudely elsewhere are entombed.  
