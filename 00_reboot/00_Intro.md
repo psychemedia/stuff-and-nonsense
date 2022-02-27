@@ -20,7 +20,7 @@ In a book,
 Or performed upon a stage,  
   
 They've already been approved,  
-Via proper typeset page.
+On a proper typeset page.
   
 I never have to worry,  
 If the words are good enough,  
