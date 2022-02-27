@@ -69,7 +69,7 @@ I need some more of that.
 
 More tales told,  
 And practiced,  
-Learned from
+Learned from  
 If they should fall flat.  
 
 More practice, practice, practice,  
