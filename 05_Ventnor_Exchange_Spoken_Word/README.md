@@ -6,7 +6,7 @@ Is quite supposed to be.
 
 And workshop games,  
 And exercises,  
-Really just not me.
+Are really just not me.
 
 "Supportive" and "community",  
 I'm too aloof for that,  
