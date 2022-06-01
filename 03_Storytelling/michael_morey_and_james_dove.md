@@ -62,7 +62,21 @@ For cutting off his grandson's head,
 He is hung on Arreton Down  
 For rooks and ravens to peck down.*  
 
+---
+
 See also:
+
+Political State of Great Britain vol LIII p535-6
+
+" Extract of a Letter from Hampshire.
+At the Assizes at Winchester yesterday Se'enight,
+an old Fellow of the Isle of Wight, was condemned for the Murder of his Grandson, about 14 Years of Age. He had bred him up from his Cradle ; and the Child having some way or other disobliged him, he took him out with him one Morning about Six o'Clock in June last , on Pretence of going to a
+Market-town about seven Miles from him, to buy Necessaries, and carried him into a Wood, and murdered him with a Bill-hook, which he had taken with him for that Purpose. There was no Confession made by the Villain , nor was the Body found till October, when it could only be known by the Hat, Breeches, Stockings, and Shoes, which the Child had on when he went from Home, and which were found with the Body, together with the Bill-hook and the old Man's Gloves. He had cut off his Head , and mangled his Body, and put the whole into two Wallets, which he also carried with him. What cruel Circumstances might attend the Execution of this horrid Fact, is at present only known to God and the Murderer. The old Fellow did not return home till about a Week after the Fact was committed ; and being asked after the Child, and not giving a satisfactory Answer, he
+was taken up on Suspicion ; and upon searching a Chest belonging to him, his bloody Shirt ( which was also produced in Court) was found wrapt up in a clean Shirt ; upon which he was committed at the Summer Assizes, and now tried , convicted, and condemn'd, and is to be hanged this Day at Winchester, but in Chains in the Isle of Wight."
+
+He was accordingly executed on Saturday the 19th of March, but without making any particular Confession.
+
+---
 
 Isle of Wight Observer - Saturday 03 May 1879
 
