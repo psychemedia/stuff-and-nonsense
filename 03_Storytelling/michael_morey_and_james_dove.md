@@ -66,7 +66,7 @@ For rooks and ravens to peck down.*
 
 See also:
 
-Political State of Great Britain vol LIII p535-6
+Political State of Great Britain vol LIII p535-6 [[via Google Books](https://books.google.co.uk/books?id=WGo5AQAAMAAJ&pg=PA423&dq=Political+State+of+Great+Britain+vol+LIII&hl=en&newbks=1&newbks_redir=0&sa=X&ved=2ahUKEwi4ksfdro34AhXISkEAHXhyA5kQ6AF6BAgHEAI#v=onepage&q=wight&f=false)]
 
 " Extract of a Letter from Hampshire.
 At the Assizes at Winchester yesterday Se'enight,
