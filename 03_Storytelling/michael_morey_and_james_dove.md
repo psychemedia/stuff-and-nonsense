@@ -1,3 +1,4 @@
+*This account inspired by __For Rooks and Ravens: The Execution of Michael Morey__, Kenneh S. Phillips, IW Museum Publication No. 4.*
 
 *Michael Morey's dead,  
 For cutting off his grandson's head,  
@@ -10,12 +11,11 @@ Back in the early-1700s, just on the hillside to the left of there, lived a wood
   
 There is a Morey's building and timber merchants on the island to this day: you'll see their yards just coming into Sandown, from Brading, in Ryde, and in Newport. I don't know if they are related.  
   
-James's mother, Michael's daughter, had died giving birth to him fourteen years before; his father had abandoned him and remarried elsewhere on the island.  
+James's mother, and Michael's daughter, Mary, had died giving birth to him fourteen years before; his father, Thomas Dove, originally of Brading, had abandoned him and remarried elsewhere on the island.  
   
 Early one morning in June, 1736, shortly after sunrise, six a.m. or so, Michael Morey and his teenage grandson left their cottage at Sullens, setting off "on Pretence of going to a Market-town about seven Miles from him, to buy Necessaries", as an old report has it. Between them, they carried some old leather panniers.  
   
-Shortly after, Michael must have returned home alone, but then he too disappeared. A week later, Michael returned; "being asked after the Child, he could not give a satisfactory Answer. He
-was taken up on Suspicion; and upon searching a Chest belonging to him, his bloody Shirt (which was later produced in Court) was found wrapt up in a clean Shirt". He was placed in the care of his son, presumably under some sort of house arrest, and a hue and cry raised to search for James.  
+Shortly after, Michael must have returned home alone, but then he too disappeared. A week later, Michael returned; "being asked after the Child, he could not give a satisfactory Answer. He was taken up on Suspicion; and upon searching a Chest belonging to him, his bloody Shirt (which was later produced in Court) was found wrapt up in a clean Shirt". He was placed in the care of his son, presumably under some sort of house arrest, and a hue and cry raised to search for James.  
   
 Towards the end of July, Michael absconded again. Three days later, he was found again, a small reward paid for his return. Two weeks after that, he was sent to the Big Island, to the mainland, and imprisoned in in Winchester jail on suspicion of murder.  
   
@@ -62,8 +62,6 @@ For cutting off his grandson's head,
 He is hung on Arreton Down  
 For rooks and ravens to peck down.*  
 
-
-
 See also:
 
 Isle of Wight Observer - Saturday 03 May 1879
@@ -106,3 +104,19 @@ Twas "Burnt House" call'd – the name to-day,
 Though six score years have pass'd away.
 
 J. DORE.
+
+---
+
+Isle of Wight Times - Thursday 10 April 1879, p5
+
+ARRETON. MICAHEAL MOREY'S BONES.— In the year 1735, the 9th of King George II, Michael Morey, a woodman, was hung and gibbeted on the side of Arreton Down for the murder of his grandson, who had strayed away to the place where he was at work, and provoked him to anger. Tradition said he hid the body and placed a Bible under the head in order to prevent his being haunted by the ghost. Some years after, the bones having slipped from the gibbet, were collected and buried near the site. Las week some man digging there found the skull, with teeth perfect, and other bones.
+
+---
+
+West Sussex Gazette - Thursday 10 January 1935 p9
+
+ISLE OF WIGHT NOTES
+
+BOYS' CAVE PERIL
+
+A conesable had to cut steps in the cliff face with pick and shovel before two boys improsioned in "Michael Moreys Cave," on Arreton Down, could be released. The cave is one in which Michael Morey took refuge after murdering has grandson. Eventually he was caught and hanged, and buried at the spot. Five boys set out to explore and picnic in the cave, arriving about 11 am. Two managed to clamber into the cave, but heavy rain made the chalk so slippery that descent was impossible without assistance. They were marooned in the cave for over four hours, the other bous trying unsuccessfully to throw them food.
