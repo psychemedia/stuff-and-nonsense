@@ -18,7 +18,7 @@ If there was a land dispute, an "action of ejectment" could be brought by someon
 
 *I don't know if the particular case involved the livery of seisin, but it makes for a more colourful story if it does!*
 
-And so it was that on November 25th, at 10 am, the case of Curtis versus Wade, in the matter of an action of ejectment, was called.
+And so it was that on November 25th, at 10 am, the case of Curtis versus March, in the matter of an action of ejectment, was called.
 
 "The plaintiff's counsel commenced his address to the jury, but as the defendant was not present and no one appeared for him, the learned Judge directed a verdict for the plaintiff. The defendant's counsel then entered the Court and claimed to have the cause tried, on the ground that it had been disposed of before 10 o'clock."
 
