@@ -54,3 +54,5 @@ Standard time as London time, as Greenwich mean time, GMT, did not enter the sta
   
   
 Reference: [vol. iii. of Hurlstone and Norman's `Exchequer Reports,' p. 866 (1858), https://www.google.co.uk/books/edition/The_Exchequer_Reports/edEsAQAAMAAJ?hl=en&gbpv=1]
+
+See also: *Railways, Uniformity of Time, and the Making of Modern Britain*, Michael Bennett
