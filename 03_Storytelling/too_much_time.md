@@ -55,4 +55,4 @@ Standard time as London time, as Greenwich mean time, GMT, did not enter the sta
   
 Reference: [vol. iii. of Hurlstone and Norman's `Exchequer Reports,' p. 866 (1858), https://www.google.co.uk/books/edition/The_Exchequer_Reports/edEsAQAAMAAJ?hl=en&gbpv=1]
 
-See also: *Railways, Uniformity of Time, and the Making of Modern Britain*, Michael Bennett
+See also: *Railways, Uniformity of Time, and the Making of Modern Britain*, Michael Bennett; and this fascinating legal review by David Pollard on [Some Oddities of the Law on Age: So You Thought You Reached Age 21 on Your 21st Birthday?](https://www.wilberforce.co.uk/wp-content/uploads/2017/12/Some-oddities-of-the-law-on-age-So-you-thought-you-reached-age-21-2020-34-TLI-21.pdf).
