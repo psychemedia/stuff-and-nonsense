@@ -7,9 +7,8 @@ To see how it would go.
   
 And as I was there  
 It reminded me,  
-How years  
-Long long ago,  
-I used to dabble with nonsense verse,  
+How years and years ago,  
+I used to dabble, with nonsense verse,  
   
 And so,  
 ... and so...  
